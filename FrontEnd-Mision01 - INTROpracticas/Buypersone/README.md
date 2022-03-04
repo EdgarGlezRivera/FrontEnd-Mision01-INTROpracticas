@@ -1,0 +1,1 @@
+Link del Buypersone --> https://www.hubspot.es/make-my-persona?persona=-MwnlaVRbE9Rsj5at18I

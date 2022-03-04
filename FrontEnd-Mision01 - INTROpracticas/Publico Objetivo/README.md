@@ -1,0 +1,1 @@
+Link del publico objetivo esta aqui --> https://miro.com/app/board/uXjVOJXXj1I=/?invite_link_id=420029057601
